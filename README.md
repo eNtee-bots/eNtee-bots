@@ -1,4 +1,4 @@
 - 👋 Hi, I’m eNtee
 - 👀 I’m interested in JS  ;D
 - 🌱 I’m currently learning JS xD
-- 📫 How to reach me Email: entee@famebit.ch Discord: eNtee#8888
+- 📫 How to reach me Email: entee@famebit.ch Discord: eNtee#1337
